@@ -9,7 +9,7 @@ I've also completed internships at **Rahnema College** (front-end development) a
 
 I'm passionate about learning and collaborating with professionals to develop innovative solutions in AI. Let’s connect and explore opportunities for mutual growth!
 
-😄 **Laugh to life and keep learning!** :)
+😄 **Laugh at life and keep learning!** :)
 
 
 ## 🌐 Socials:
